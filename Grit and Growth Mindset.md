@@ -19,6 +19,7 @@
 - Make your own learning plan.
 - Accept difficulties and learn from them.
 
+
 ## 5. What are your ideas to take action and build a Growth Mindset?
 
 - **Take responsibility:** I will take responsibility for my learning and try to complete every task given to me.
