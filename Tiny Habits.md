@@ -1,4 +1,4 @@
-# Tiny Habits and Atomic Habits – Assignment
+# Tiny Habits and Atomic Habits
 
 
 ### Question 1: In this video, what was the most interesting story or idea for you?
